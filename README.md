@@ -3,7 +3,7 @@
 ## 🚀 Data Scientist/ML Engineer focusing on applied AI
 
 📍 **Pakistan**  
-📧 **Email:** [Gmail Account](tehreemzubair785@gmail.com)  
+📧 **Email:** [Gmail Account](contact@tehreemzubair785@gmail.com)  
 🔗 **LinkedIn:** [tehreem-zubair](www.linkedin.com/in/tehreem-zubair)  
 👨‍💻 **GitHub:** [TEHREEMZUABAIR](https://github.com/TEHREEMZUBAIR)
 
